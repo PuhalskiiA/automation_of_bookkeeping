@@ -1,0 +1,1 @@
+# spb-stu-coursework-AutomationOfBookkeeping
